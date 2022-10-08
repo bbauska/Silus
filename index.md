@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Silus Spider, on YouTube.
 
-Maybe say a some things about yourself.
+Born Oct 11, 2010. That's 10/11/10.
 
-Or maybe what you plan to blog about.
+Enjoy gaming, youtubing and snapchatting.
